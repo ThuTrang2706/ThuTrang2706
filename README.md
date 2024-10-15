@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ThuTrang2706
+- 👋 Hi, I’m @Thu Trang
 - 📫 nguyentrang2762004@gmail.com
 - 😄 Boong
 <!---
